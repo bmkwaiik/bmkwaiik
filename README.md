@@ -1,4 +1,5 @@
 ![minou](https://github.com/user-attachments/assets/ce5856b6-8777-4468-9204-8785f1aa1294)
+![Pirate Pooch](https://github.com/user-attachments/assets/52e06e67-6179-413a-bc69-c913b831da12)
 
 
 <!--
