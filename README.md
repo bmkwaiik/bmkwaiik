@@ -1,5 +1,6 @@
 ![minou](https://github.com/user-attachments/assets/ce5856b6-8777-4468-9204-8785f1aa1294)
-![Uploading ✍Art•Painting•GiF✍.gif…]()
+
+(https://github.com/user-attachments/assets/6bedd067-1a6b-41d2-b28b-c25f4f6717ed)
 
 https://bmmk.straw.page <---
 
