@@ -9,6 +9,7 @@
 
 
 
+![Profile view counter on GitHub](https://bmkwaiik.com/ghpvc/?username=bmkwaiik)
 
 
 <!--
