@@ -2,7 +2,7 @@
 
 ![_ (81)](https://github.com/user-attachments/assets/29fb0e4e-d6e0-4b95-9326-73db111bc732)
 
-[straw]  (https://bmmk.straw.page/)
+[straw]
 
 
 
