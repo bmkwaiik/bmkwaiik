@@ -4,9 +4,9 @@
 <div align="center">
   
 [straw](https://bmmstraw.straw.page) 
-<br>
+
 [prns](https://pronouns.cc/@BM) 
-<br>
+
 [guns](https://guns.lol/bmmm) 
 
 
