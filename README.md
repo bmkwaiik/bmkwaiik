@@ -2,8 +2,8 @@
 
  <div align="center">   
   
-[straw](https://bmmstraw.straw.page) <br> [prns](https://pronouns.cc/@BM)  <br> [guns](https://guns.lol/bmmm)  
- <br>
+[straw](https://bmmstraw.straw.page)  [prns](https://pronouns.cc/@BM)   [guns](https://guns.lol/bmmm)  
+
 
 ![VintageByJade on Etsy (1)](https://github.com/user-attachments/assets/81c34111-c97c-41d7-9a14-fb66539d3014)
 
