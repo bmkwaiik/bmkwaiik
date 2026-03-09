@@ -7,7 +7,8 @@
 
 ![VintageByJade on Etsy (1)](https://github.com/user-attachments/assets/81c34111-c97c-41d7-9a14-fb66539d3014)
 
-![🍼](https://github.com/user-attachments/assets/57dfa3ce-5ab2-4d79-8c42-0fd192c6626c)![_ - 2026-03-09T144925 184](https://github.com/user-attachments/assets/4fcf5c8b-f612-4c3b-b46b-d059093f8809)
+![🍼](https://github.com/user-attachments/assets/57dfa3ce-5ab2-4d79-8c42-0fd192c6626c)![_ - 2026-03-09T144925 184](https://github.com/user-attachments/assets/4fcf5c8b-f612-4c3b-b46b-d059093f8809)![abt me](https://github.com/user-attachments/assets/20409d41-b1d2-4a28-9d05-74c2c5e0412e)
+
 
 
 
