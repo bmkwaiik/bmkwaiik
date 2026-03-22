@@ -1,6 +1,5 @@
 
-[Profile view counter on GitHub](https://komarev.com/ghpvc/?username=bmkwaiik)
- <div align="center">   
+[Profile view counter on GitHub](https://komarev.com/ghpvc/?username=bmkwaiik) <div align="center">   
   
 [straw](https://bmmstraw.straw.page)⋆˚࿔[vox straw](https://voxstraw.straw.page) ⋆˚࿔[prns](https://pronouns.cc/@BM)⋆˚࿔ [guns](https://guns.lol/bmmm)  
 
