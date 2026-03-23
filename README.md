@@ -6,7 +6,7 @@
 
 ![VintageByJade on Etsy (1)](https://github.com/user-attachments/assets/81c34111-c97c-41d7-9a14-fb66539d3014)
 
-![🍼](https://github.com/user-attachments/assets/57dfa3ce-5ab2-4d79-8c42-0fd192c6626c)!
+
 
 
 
