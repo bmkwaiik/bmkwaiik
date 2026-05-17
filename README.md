@@ -3,7 +3,8 @@
   
 [𝔰𝔱𝔯𝔞𝔴](https://bmmstraw.straw.page)⋆˚࿔[𝔭𝔯𝔫𝔰](https://pronouns.cc/@BM)⋆˚࿔ [𝔞𝔱𝔞](https://bmkwaki.atabook.org/)⋆˚࿔[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
 
-<img width="736" height="1547" alt="_ - 2026-05-17T200925 821" src="https://github.com/user-attachments/assets/99b4c458-45e7-4356-8f4e-4c9819bc31fa" />
+<img width="736" height="736" alt="_ - 2026-05-17T201114 098" src="https://github.com/user-attachments/assets/1825920b-4110-4970-8ab4-094d6405dad7" />
+
 
 
 
