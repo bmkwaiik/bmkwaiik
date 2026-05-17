@@ -3,7 +3,7 @@
   
 [𝔰𝔱𝔯𝔞𝔴](https://bmmstraw.straw.page)⋆˚࿔[𝔭𝔯𝔫𝔰](https://pronouns.cc/@BM)⋆˚࿔ [𝔞𝔱𝔞](https://bmkwaki.atabook.org/)⋆˚࿔[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
 
-<img width="735" height="758" alt="manga kou and mitsuba _ mitsukou ♡" src="https://github.com/user-attachments/assets/2b1985ff-0713-4316-82e1-cc40c6997b5a" />
+<img width="736" height="414" alt="_ - 2026-05-17T201512 119" src="https://github.com/user-attachments/assets/472d8598-c73d-4899-8708-1e192d185e6b" />
 
 
 
