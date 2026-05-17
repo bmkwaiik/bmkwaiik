@@ -3,8 +3,7 @@
   
 [𝔰𝔱𝔯𝔞𝔴](https://bmmstraw.straw.page)⋆˚࿔[𝔭𝔯𝔫𝔰](https://pronouns.cc/@BM)⋆˚࿔ [𝔞𝔱𝔞](https://bmkwaki.atabook.org/)⋆˚࿔[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
 
-
-![VintageByJade on Etsy (1)](https://github.com/user-attachments/assets/81c34111-c97c-41d7-9a14-fb66539d3014)
+<img width="736" height="1547" alt="_ - 2026-05-17T200925 821" src="https://github.com/user-attachments/assets/99b4c458-45e7-4356-8f4e-4c9819bc31fa" />
 
 
 
