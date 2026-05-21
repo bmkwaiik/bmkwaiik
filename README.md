@@ -3,7 +3,7 @@
 
  <div align="center">   
 
-![divas](https://komarev.com/ghpvc/?username=bmkwaiik)
+![](https://komarev.com/ghpvc/?username=bmkwaiik)
   
 [𝔰𝔱𝔯𝔞𝔴](https://bmmstraw.straw.page)⋆˚࿔[𝔭𝔯𝔫𝔰](https://pronouns.cc/@BM)⋆˚࿔[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
 
