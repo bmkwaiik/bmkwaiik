@@ -8,7 +8,9 @@
 [𝔰𝔱𝔯𝔞𝔴](https://bmmstraw.straw.page)⋆˚࿔[𝔭𝔯𝔫𝔰](https://pronouns.cc/@BM)⋆˚࿔[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
 
 
-<img width="200" height="200" alt="200w" src="https://github.com/user-attachments/assets/3bac2259-59d8-48cc-a087-e6ff697d51c5" />
+
+<img width="400" height="222" alt="animesher com_kawaii-sanrio-gif-cinnamoroll-160839" src="https://github.com/user-attachments/assets/cc178ae6-6cec-4456-a3b7-3e1c07f41ffa" />
+
 
 
 
