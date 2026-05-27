@@ -8,8 +8,7 @@
 [𝔰𝔱𝔯𝔞𝔴](https://bmmstraw.straw.page)⋆˚࿔[𝔭𝔯𝔫𝔰](https://pronouns.cc/@BM)⋆˚࿔[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
 
 
-
-<img width="736" height="736" alt="_ - 2026-05-20T224633 882" src="https://github.com/user-attachments/assets/90a67541-4419-403d-8201-aeb8e8f33b1d" />
+https://pt.pinterest.com/pin/1618549864992534/
 
 
 
