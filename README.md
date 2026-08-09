@@ -9,7 +9,8 @@
 
 
 
-<img width="400" height="222" alt="animesher com_kawaii-sanrio-gif-cinnamoroll-160839" src="https://github.com/user-attachments/assets/cc178ae6-6cec-4456-a3b7-3e1c07f41ffa" />
+<img width="736" height="920" alt="Idea so cursed I had to execute it__#sherlockandco #digitalart #fanart" src="https://github.com/user-attachments/assets/1894cb6f-598a-4696-8b5a-beb80a236ad7" />
+
 
 
 
