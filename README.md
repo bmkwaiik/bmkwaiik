@@ -13,7 +13,7 @@
 <img width="400" height="222" alt="animesher com_kawaii-sanrio-gif-cinnamoroll-160839" src="https://github.com/user-attachments/assets/c36fa886-1275-43e3-9451-9aa7c2461037" />
 
 
-[ata](https://bmkwaki.atabook.org/)
+[𝔞𝔱𝔞](https://bmkwaki.atabook.org/)⋆˚࿔
 
 
 
