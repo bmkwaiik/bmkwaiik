@@ -10,7 +10,7 @@
 
 
 
-<img width="400" height="222" alt="animesher com_kawaii-sanrio-gif-cinnamoroll-160839" src="https://github.com/user-attachments/assets/c36fa886-1275-43e3-9451-9aa7c2461037" />
+<img width="735" height="654" alt="ganstas" src="https://github.com/user-attachments/assets/891b14c6-696e-4c6a-95b6-a60a40ac42a8" />
 
 
 
