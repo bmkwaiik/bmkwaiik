@@ -1,4 +1,4 @@
-![ya](https://gitviews.com)
+[ya](https://gitviews.com)
 
 
 
